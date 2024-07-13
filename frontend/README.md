@@ -51,10 +51,6 @@
 - Join ConfPub today to be a part of a vibrant community dedicated to advancing knowledge and driving innovation.
 - Publish your research, connect with peers, and make a lasting impact in your field.
 
-**Contact Us:**
-- For inquiries or support, contact us at support@confpub.com.
-- Follow us on social media for the latest news and updates.
 
----
 
 Feel free to further customize the points to better fit the specific goals, features, and audience of your conference paper publication website.
